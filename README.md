@@ -1,0 +1,1 @@
+# Generator-silnik-i-alternator-z-kondesatorem-fotonowym-laserowym-rezonans-fotonowy.
